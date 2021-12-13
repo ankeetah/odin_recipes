@@ -1,1 +1,2 @@
 # odin_recipes
+I am trying to create webpages for the odin Project. I hope till end of this course I really am capable of getting remote location job and have freedom to choose work and also time and money. I eager to learn, practising might be easy but its not simple. Hopefully I reach there, one day.
